@@ -1,0 +1,2 @@
+# StratocasterCalifornia
+Diversidad de sonidos
